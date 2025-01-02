@@ -1,0 +1,1 @@
+Newbie's IC rambling
